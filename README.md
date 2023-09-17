@@ -1,2 +1,2 @@
 # glue_script
-idk remote script
+THANKS 1_805 FOR DEOBFUSCATE AND CRACK SCRIPT!
